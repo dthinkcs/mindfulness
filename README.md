@@ -1,4 +1,11 @@
 # mindfulness -> a simple 10m daily skill (glimpses into competence)
+2010s
+
+ZOGCHEN 
+
+
+2020s
+
 Feb
 Mindfulness Basics -28
 
